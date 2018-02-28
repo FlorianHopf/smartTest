@@ -1,1 +1,4 @@
 # smartTest
+I Bims a README!
+REEEEEAAAAADDDDDD MMEEEEEEEEE!!!!!!
+
